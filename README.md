@@ -1,9 +1,6 @@
 # Bahamas Cruise Itinerary 🚢🌴
 
-This document details the cruise itinerary and port activities for the **Zhang Big Family Bahamas Cruise** aboard the **Carnival Pride** from **Sunday, May 31, 2026 to Sunday, June 7, 2026**.
-
-> [!NOTE]
-> This cruise is a family gathering funded by **Grandpa and Grandma (ShuangSong Zhang & Xiying Yang)** for their three daughters' families: **Ying's**, **Talan's**, and **Kun's**.
+This document details the cruise itinerary and port activities for the **Bahamas Cruise** aboard the **Carnival Pride** from **Sunday, May 31, 2026 to Sunday, June 7, 2026**.
 
 ---
 
